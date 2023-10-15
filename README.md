@@ -10,5 +10,5 @@
 
 ## 👇 Buy For Massage 🆔 Below 👇
 
-## 👤💬DM https://t.me/RDPvps_Sellar
-# Video Link https://t.me/PremiumHackingTutorials/790
+## 👤💬DM https://t.me/RDP_vps_Sellar
+# Video Link https://t.me/FudCrypter_by_NewCoder/3
