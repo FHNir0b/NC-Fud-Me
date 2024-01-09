@@ -1,6 +1,6 @@
 # Fud Me NC Crypter v2.2 - Fully Undetectable Crypter
 
-Welcome to the realm of undetectable Fud Me NC Crypter! Below, you'll find all the essential details to wield the power of Fud Me NC Crypter v2.2 and bypass over 60 antivirus programs with sheer audacity.
+Welcome to the realm of undetectable Fud Me NC Crypter.! Below, you'll find all the essential details to wield the power of Fud Me NC Crypter v2.2 and bypass over 60 antivirus programs with sheer audacity.
 
 
 ## Features:
