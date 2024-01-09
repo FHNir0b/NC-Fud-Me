@@ -39,6 +39,4 @@ https://youtu.be/8iz7ASI8daM)
 ## Crypter Name: Fud Me NC
 
 **Screenshot:**
-![Screenshot 1](https://imgur.com/yNvBlWv)
-![Screenshot 2](link_to_screenshot_2.jpg)
-![Screenshot 3](link_to_screenshot_3.jpg)
+![Screenshot 1](IMG_20240109_141302_784.jpg)
