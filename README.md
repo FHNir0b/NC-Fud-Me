@@ -37,3 +37,6 @@ https://youtu.be/8iz7ASI8daM)
 - 🦠 [VirusTotal Scan](https://virusscan.jotti.org/en-US/filescanjob/meteoriteeor3oc)
 
 ## Crypter Name: Fud Me NC
+
+**Screenshot:**
+![IMG_20240109_141302_784.jpg]
