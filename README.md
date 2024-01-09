@@ -18,14 +18,14 @@ Welcome to the realm of undetectable Fud Me NC Crypter.! Below, you'll find all 
 - 💼 12 months: $  
 
 ## How to Purchase:
-- 💬 For inquiries and purchases, contact ID 🆔 [New_Codar](https://t.me/New_Codar) on Telegram.
+- 💬 For inquiries and purchases, contact ID 🆔 [New_Codar](https://t.me/New_Codar){:target="_blank"} on Telegram.
 
 # Additional Offer:
 - ➡️ Free Test for 15 minutes
 
 ⚠️ Send me your File, but remember, if you want to buy for sure, you can test.
 
-🗂 Files send here 🆔 [FudCrypter_by_NewCoder](https://t.me/FudCrypter_by_NewCoder)
+🗂 Files send here 🆔 [FudCrypter_by_NewCoder](https://t.me/FudCrypter_by_NewCoder){:target="_blank"}
 
 ## Join the Fud Me NC Channel:
 - 🕵️‍♂️ [Telegram Channel](https://t.me/FudCrypter_by_NewCoder)
