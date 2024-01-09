@@ -34,6 +34,15 @@ Welcome to the realm of undetectable Fud Me NC Crypter! Below, you'll find all t
 **Scan Your Mischief:**
 - 🦠 [VirusTotal Scan](https://virusscan.jotti.org/en-US/filescanjob/meteoriteeor3oc)
 
+## Additional Offer:
+- ➡️ Free Test for 15 minutes
+
+⚠️ Send me your File, but remember, if you want to buy for sure, you can test.
+
+🗂 Files send here 🆔 (https://t.me/FudCrypter_by_NewCoder)
+
+
+
 ## Crypter Name: Fud Me NC
 
 **Screenshot:**
