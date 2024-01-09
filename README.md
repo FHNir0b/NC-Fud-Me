@@ -31,9 +31,9 @@ Welcome to the realm of undetectable Fud Me NC Crypter! Below, you'll find all t
 
 ## Tools Name: Fud Me NC
 
-##Watch on YouTube:
-**Fud Me NC Crypter Demo:**
-([https://www.youtube.com/watch?v=YOUR_VIDEO_ID](https://youtu.be/8iz7ASI8daM))
+## Watch on YouTube:
+- 🎥 [Fud Me NC Crypter Demo]
+https://youtu.be/8iz7ASI8daM)
 
 **Scan Your Mischief:**
 - 🦠 [VirusTotal Scan](https://virusscan.jotti.org/en-US/filescanjob/meteoriteeor3oc)
