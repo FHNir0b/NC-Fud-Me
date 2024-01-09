@@ -40,7 +40,7 @@ Welcome to the realm of undetectable Fud Me NC Crypter.! Below, you'll find all 
 - 🎥 [Fud Me NC Crypter Demo](https://youtu.be/8iz7ASI8daM)
 
 **Scan Your Mischief:**
-- 🦠 [Virus Scan](https://virusscan.jotti.org/en-US/filescanjob/meteoriteeor3oc)
+- 🦠 [Virus Scan]([https://virusscan.jotti.org/en-US/filescanjob/meteoriteeor3oc](https://virusscan.jotti.org/en-US/filescanjob/m82teor3oc))
 
 ## Crypter Name: Fud Me NC
 
