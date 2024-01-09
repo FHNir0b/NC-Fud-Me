@@ -21,7 +21,7 @@ Welcome to the realm of undetectable Fud Me NC Crypter! Below, you'll find all t
 - 🕵️‍♂️ [Telegram Channel](https://t.me/FudCrypter_by_NewCoder)
 
 ## How to Purchase:
-- 💬 For inquiries and purchases, contact ID [New_Codar](https://t.me/New_Codar) on Telegram.
+- 💬 For inquiries and purchases, contact ID 🆔 [New_Codar](https://t.me/New_Codar) on Telegram.
 
 ## Exclusive Offer:
 - 🎁 Limited-time bonus: Get a free consultation on maximizing your malicious potential with every purchase!
