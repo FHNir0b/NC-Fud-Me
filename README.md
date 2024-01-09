@@ -12,9 +12,17 @@ Welcome to the realm of undetectable Fud Me NC Crypter! Below, you'll find all t
 - 💯 100% Bypass Guarantee for Over 60 Antivirus Runtimes
 
 ## Pricing:
-- 💼 1 month: $150  
-- 💼 3 months: $250  
-- 💼 6 months: $450  
+- 💼 1 month: $
+- 💼 3 months: $
+- 💼 6 months: $
+
+  # Additional Offer:
+- ➡️ Free Test for 15 minutes
+
+⚠️ Send me your File, but remember, if you want to buy for sure, you can test.
+
+🗂 Files send here 🆔 (https://t.me/FudCrypter_by_NewCoder)
+
 
 ## Join the Fud Me NC Channel:
 - 🕵️‍♂️ [Telegram Channel](https://t.me/FudCrypter_by_NewCoder)
@@ -33,14 +41,6 @@ Welcome to the realm of undetectable Fud Me NC Crypter! Below, you'll find all t
 
 **Scan Your Mischief:**
 - 🦠 [VirusTotal Scan](https://virusscan.jotti.org/en-US/filescanjob/meteoriteeor3oc)
-
-## Additional Offer:
-- ➡️ Free Test for 15 minutes
-
-⚠️ Send me your File, but remember, if you want to buy for sure, you can test.
-
-🗂 Files send here 🆔 (https://t.me/FudCrypter_by_NewCoder)
-
 
 ## Crypter Name: Fud Me NC
 
