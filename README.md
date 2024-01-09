@@ -45,4 +45,4 @@ Welcome to the realm of undetectable Fud Me NC Crypter.! Below, you'll find all 
 ## Crypter Name: Fud Me NC
 
 **Screenshot:**
-[![Screenshot 1](IMG_20240109_141302_784.jpg)](IMG_20240109_141302_784.jpg){:target="_blank"}
+[![Screenshot 1](IMG_20240109_141302_784.jpg)](IMG_20240109_141302_784.jpg)
