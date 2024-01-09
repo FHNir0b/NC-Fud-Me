@@ -18,29 +18,29 @@ Welcome to the realm of undetectable Fud Me NC Crypter.! Below, you'll find all 
 - 💼 12 months: $  
 
 ## How to Purchase:
-- 💬 For inquiries and purchases, contact ID 🆔 [New_Codar](https://t.me/New_Codar){:target="_blank"} on Telegram.
+- 💬 For inquiries and purchases, contact ID 🆔 [New_Codar](https://t.me/New_Codar) on Telegram.
 
 # Additional Offer:
 - ➡️ Free Test for 15 minutes
 
 ⚠️ Send me your File, but remember, if you want to buy for sure, you can test.
 
-🗂 Files send here 🆔 [FudCrypter_by_NewCoder](https://t.me/FudCrypter_by_NewCoder){:target="_blank"}
+🗂 Files send here 🆔 [FudCrypter_by_NewCoder](https://t.me/FudCrypter_by_NewCoder)
 
 ## Join the Fud Me NC Channel:
-- 🕵️‍♂️ [Telegram Channel](https://t.me/FudCrypter_by_NewCoder){:target="_blank"}
+- 🕵️‍♂️ [Telegram Channel](https://t.me/FudCrypter_by_NewCoder)
 
 ## Exclusive Offer:
 - 🎁 Limited-time bonus: Get a free consultation on maximizing your malicious potential with every purchase!
 
 ## Our All Telegram Networks:
-- 🌐 [Hacking and Cracking Channels](https://t.me/OurAllNetwork){:target="_blank"}
+- 🌐 [Hacking and Cracking Channels](https://t.me/OurAllNetwork)
 
 ## Watch on YouTube:
-- 🎥 [Fud Me NC Crypter Demo](https://youtu.be/8iz7ASI8daM){:target="_blank"}
+- 🎥 [Fud Me NC Crypter Demo](https://youtu.be/8iz7ASI8daM)
 
 **Scan Your Mischief:**
-- 🦠 [VirusTotal Scan](https://virusscan.jotti.org/en-US/filescanjob/meteoriteeor3oc){:target="_blank"}
+- 🦠 [VirusTotal Scan](https://virusscan.jotti.org/en-US/filescanjob/meteoriteeor3oc)
 
 ## Crypter Name: Fud Me NC
 
